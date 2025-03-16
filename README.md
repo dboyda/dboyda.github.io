@@ -1,1 +1,0 @@
-Denis Boyda MVP website
